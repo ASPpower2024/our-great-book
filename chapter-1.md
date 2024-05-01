@@ -1,8 +1,9 @@
 # Robot 1-X, save my friends! And Zoidberg!
 
-Gunther said 
 
 All I want is to be a monkey of moderate intelligence who wears a suit… that's why I'm transferring to business school! Then we'll go with that data file! Bender, quit destroying the universe! Anyone who laughs is a communist!
+
+Fry didn't like the monkey named Guther afterward saying..
 
 With a warning label this big, you know they gotta be fun! __No, just a regular mistake.__ *Have you ever tried just turning off the TV, sitting down with your children, and hitting them?* Now that the, uh, garbage ball is in space, Doctor, perhaps you can help me with my sexual inhibitions?
 
